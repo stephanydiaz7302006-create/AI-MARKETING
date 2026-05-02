@@ -1,3 +1,5 @@
+ADDD THISSS TO THE WEBISTE 
+
 Career overview: Marketing in Skincare
 
 Skincare marketing is a career focused on promoting and selling skincare products such as cleansers, serums, moisturizers, sunscreens, and treatments. The people in this field work on branding, social media campaigns, advertising, influencer partnerships, product launches, and understanding customer behavior. Skincare overall helps everyone around the world.
